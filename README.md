@@ -1,2 +1,2 @@
-# Games
-1. Smackdab!
+# Smackdab!
+idk why I made this
